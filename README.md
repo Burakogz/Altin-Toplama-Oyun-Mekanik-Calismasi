@@ -1,0 +1,1 @@
+# Altin-Toplama-Oyun-Mekanik-Calismasi
